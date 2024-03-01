@@ -1,1 +1,1 @@
-👋 👋 (LinkedIn)[https://www.linkedin.com/in/mchamas/]
+👋 👋 [LinkedIn](https://www.linkedin.com/in/mchamas/)
